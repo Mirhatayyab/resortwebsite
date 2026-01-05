@@ -31,7 +31,7 @@ Presentation Slides (PowerPoint):
 (https://docs.google.com/presentation/d/1yhD4GXtpCAHtBQu35YVjYfb1skxcXHab/edit?usp=drive_link&ouid=111066214899703733753&rtpof=true&sd=true)
 
 Animated vedio:
-https://drive.google.com/file/d/1M_2mhyR2Xu11BNRh5Cb26WdElcvZMSPA/view?usp=drive_link
+https://drive.google.com/file/d/1V3zkZ0zIT1ns7PLlkv06_8N3Q-ZISWz0/view?usp=drive_link
 
 Group Members:
 Mirha Tayyab  
